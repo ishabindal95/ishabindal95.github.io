@@ -1,3 +1,1 @@
-# Isha Bindal
-
-I think and I know things
+<insert all the cool things about myself>
